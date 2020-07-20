@@ -6,4 +6,4 @@ Có nỗi hồn nhiên giữa mặt người ( ͡° ͜ʖ ͡°)
 
 #entj#digitalnomad
 
-medium.com/@vinhdv
+medium.com/@vinhdv   ( ͡°( ͡° ͜ʖ( ͡° ͜ʖ ͡°)ʖ ͡°) ͡°)
