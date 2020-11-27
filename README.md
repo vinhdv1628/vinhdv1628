@@ -4,8 +4,9 @@
 
 Có nỗi hồn nhiên giữa mặt người ( ͡° ͜ʖ ͡°)
 
-#entj#digitalnomad
+#entj
+#digitalnomad
 
-medium.com/@vinhdv
+
 
 ![](image/4.jpg)
